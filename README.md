@@ -1,1 +1,0 @@
-# vidmots3d
